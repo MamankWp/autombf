@@ -1,1 +1,1 @@
-# autombf
+KOK GADAK PYTHONNYA?
